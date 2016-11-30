@@ -1,0 +1,2 @@
+# pratikum_Ohm_mikro
+laporanPratikum_Ohm_mikro_aprijal_34_mk3b
